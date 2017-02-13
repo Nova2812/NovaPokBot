@@ -26,5 +26,8 @@ Wir übernehmen keine Verantwortung für Eventuelle Banns von Niantics.
 
 Happy Botting :)
 
+by Nova 2812 and TioxDmx
+
+Open Source
 
 
